@@ -17,3 +17,8 @@ to see the result of my work please visit : http://176.32.230.42/resort.com/
 to see the original website please visit : http://www.freewebsitetemplates.com/preview/beachresort/index.html
 
 please leave your comments and feedbacks :)
+
+
+
+Yaqob Salem
+
